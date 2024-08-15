@@ -1,4 +1,4 @@
-## Victoria Briceno
+## Victoria Briceño
 
 ### Computer Scientist
 
